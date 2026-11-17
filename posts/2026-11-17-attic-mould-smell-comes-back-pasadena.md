@@ -1,0 +1,3 @@
+# Attic Mould in Pasadena: Why the Smell Comes Back After Cleaning
+
+You cleaned the attic, the smell went away for a month, and then it came back. That is not a cleaning failure — it is a moisture failure. Mould grows where moisture stays, and cleaning removes the growth, not the cause. The usual causes in Pasadena attics are a slow roof leak, poor ventilation trapping warm moist air, or insulation that stays damp after a rainy spell. Until the moisture source is fixed — the leak sealed, the ventilation working, the damp insulation replaced — the mould will keep returning. Clean the cause, not just the smell. Full guide: https://pasadenaatticmoldremoval.com
