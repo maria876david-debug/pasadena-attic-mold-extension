@@ -1,0 +1,5 @@
+# How Often Should a Pasadena Attic Be Checked? A Simple Seasonal Routine
+
+Pasadena attics are out of sight, so they go unchecked for years - until a stain on the ceiling or a smell in a bedroom forces the issue. A simple seasonal routine prevents that. In spring, look for winter damage: dark stains on the decking, damp insulation, daylight around vents. In summer, check the ventilation - an attic that feels like an oven is cooking the roof from below and needs airflow, not more insulation. In autumn, before the rains, check the flashing and vent boots from the ground and clear the gutters so water does not back up under the shingles. In winter, after the first rain, go up and look for fresh drips or damp spots while they are still small. Four quick looks a year, ten minutes each, and most attic problems are caught while they are still cheap. A leak found on a routine check is a small repair; a leak found by the stain on the ceiling is a restoration job.
+
+More on attic care: https://pasadenaatticmoldremoval.com
